@@ -1,6 +1,6 @@
 💻 I’m currently working on a communication organizer
 
-🌱 I’m currently learning AI/ML integration
+🌱 I’m currently learning Apple Intelligence integration
 
 🗣️ Fun fact: I completed Columbia Law School's conflict mediation training
 
