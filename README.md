@@ -1,4 +1,4 @@
-💻 I’m currently working on a credit card and rewards program apps.
+💻 I’m currently working on a credit card and rewards program app.
 
 🌱 I’m currently learning Apple Intelligence integration
 
