@@ -1,4 +1,4 @@
-💻 I’m currently working on a communication organizer and a board game tie-in.
+💻 I’m currently working on a credit card and rewards program apps.
 
 🌱 I’m currently learning Apple Intelligence integration
 
